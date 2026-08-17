@@ -1,2 +1,2 @@
-# sltinta
-materia jose wiliams
+# SLTINTA - Análise Exploratoria
+materia jose wiliams 😂😊👌
